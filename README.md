@@ -13,10 +13,12 @@ I'd recommend please don't use this as for rivalry weapon.
 # Lifetime Access / Reports.
 
 <h3 align="center">Bot price is 55USD ping me :- https://t.me/daredevilkinng</h3>
-![Screenshot 2023-06-27 151720](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/38cdf59a-3cce-47e5-badf-758e3d926acd)
-![Screenshot 2023-06-27 151730](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/bda72eb4-fa7e-49f7-a4c1-f140ecc36fec)
-![Screenshot 2023-06-27 151805](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/a48654ed-39c9-498d-a04c-62592daa8952)
-![Screenshot 2023-06-27 152000](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/1c317d2b-28df-44e2-b7c2-c3b54ca8c785)
+
+![Screenshot 2023-06-27 151720](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/42b180fa-4c95-4521-a8c5-35ae1fe2cd3f)
+![Screenshot 2023-06-27 151730](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/c40ed639-674c-4a8a-8f65-14d03bba7cd4)
+![Screenshot 2023-06-27 151805](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/cce6484b-a9a3-40ce-a7c5-176fae293609)
+![Screenshot 2023-06-27 152000](https://github.com/daredevilkinng/TikTok_Ban_Bot/assets/69708198/dbfd6764-935d-463b-adb6-7578e87ac3a6)
+
 
 
 
