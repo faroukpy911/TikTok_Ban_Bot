@@ -1,5 +1,5 @@
 # Price is only 55$ for lifetime only serious and genuine clients are welcome no fooling around please.
-Insta Report Is a tool which reports a targeted TikTok user account. 
+TikTok Report Is a tool which reports a targeted TikTok user account. 
 It uses multi threading, therefore it's response is very fast. 
 I'd recommend please don't use this as for rivalry weapon.
 
